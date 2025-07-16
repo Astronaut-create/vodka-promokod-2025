@@ -6,7 +6,7 @@ Vodka casino промокод <strong>VODKABET777</strong>
 <br><br>
 Дает 125% на первый депозит и 300 FS  
 <br><br>
-<a href="https://vodka3.xyz?id=12870" style="color:#1E90FF; text-decoration:none;"><strong>РЕГИСТРАЦИЯ В КАЗИНО ВОДКА</strong></a>  
+<a href="https://vodka4.bet?id=12870" style="color:#1E90FF; text-decoration:none;"><strong>РЕГИСТРАЦИЯ В КАЗИНО ВОДКА</strong></a>  
 <br><br>
 фриспины без вейджера  
 
